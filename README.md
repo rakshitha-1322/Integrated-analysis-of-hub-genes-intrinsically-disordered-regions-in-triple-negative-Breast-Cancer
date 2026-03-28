@@ -1,1 +1,0 @@
-# Integrated-analysis-of-hub-genes-intrinsically-disordered-regions-in-triple-negative-Breast-Cancer
